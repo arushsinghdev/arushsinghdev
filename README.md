@@ -10,7 +10,7 @@ Founding captain of Team Visionary Codex and President of the Atal Tinkering Lab
 
 - National Winner, ATLAS AI Trailblazers Hackathon 2025-26
 - INSPIRE MANAK Awardee 2025-26
-- National Finalist, Bharatiya Yantra Khel Mahotsav 2026
+- Top 10 at the National Finals, Bharatiya Yantra Khel Mahotsav 2026
 - National Grand Finalist, India Innovates 2026
 - Top 8 Finalist, QLabs South Asia and Gulf Cooperation Council 2026
 
