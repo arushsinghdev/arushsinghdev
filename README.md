@@ -1,6 +1,6 @@
 ### Hi, I'm Arush Singh
 
-I build robots for competitions, and projects for problems that people and the world face: from CAD and wiring to code and testing. I also create the brands for the teams and events I lead.
+I build robots for competitions, and projects for problems that people and the world face: from CAD and wiring to code and testing.
 
 Founding captain of Team Visionary Codex and President of the Atal Tinkering Lab at Mount Carmel School, New Delhi.
 
